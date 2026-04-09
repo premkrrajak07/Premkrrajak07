@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently Enrolled in B.Tech Program in Electrical Engineering from Govt. Engineering College Palamu.<br>I'm learning Computer Language like - C language <br>
+I'm currently Enrolled in B.Tech Program in Electrical Engineering from Govt. Engineering College Palamu.<br>I'm currently learning Computer Language like - C language <br>
 
 
 ## 🌐 Socials:
